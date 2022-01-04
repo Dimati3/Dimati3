@@ -1,0 +1,3 @@
+- Hi! I'm Diego Torres, and I'm currently finishing my mathematics degree at my university.
+- I'm interested in artificial intelligence and data analysis. I would also love to learn more about coding and economics in general.
+- I'm looking to collaborate on anything for beginners where I can be useful and also learn.
